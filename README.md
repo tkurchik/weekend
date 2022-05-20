@@ -1,3 +1,3 @@
 # weekend
-work weekend with a team
-add new BBQ
+great weekend with a team
+and let BBQ
