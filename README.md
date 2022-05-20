@@ -1,3 +1,2 @@
 # weekend
-work weekend with a team
-add new BBQ
+go to the BBQ at the weekend with a team
